@@ -6,6 +6,9 @@
 
 me wanna learn more thingies so me can become a game dev and work on a foxy game, kon!
 
+oooh me see this mark down file pops up on my profile so me can put thingies here!
+me gonig to work on this profile like its my life :nom:
+
 <!---
 leHyperKitsune/leHyperKitsune is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
