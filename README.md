@@ -1,8 +1,8 @@
-- 👋 kon! me is hyper! me 22, transwoman and fox
+- 👋 kon! me is hyper! me 24, transfemme and fox
 - 👀 me is interested in coding and how things work
-- 🌱 me is learning python, html and css and then hopefully javascript
+- 🌱 me is learning python
 - 💞️ lately me is working on a bot on discord cause fun bot, kon!
-- 📫 kontact me on discord please it the only way u can ever talk to me it **@leHyperKitsune#5707**
+- 📫 kontact me on discord please it the only way u can ever talk to me it **leHyperKitsune**
 
 me wanna learn more thingies so me can become a game dev and work on a foxy game, kon!
 
